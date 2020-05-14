@@ -1,0 +1,2 @@
+# sunbiz
+Make money while at home 🏠 in this lockdown ,  sunbiz has been paying Nigerians everyday,it our culture....................,.............................. .  we are paying over 2 million on daily basis.. and we are not up to 1 month old,,,  Do you also want to get a cut from our revenue share ? ...................................  kindly visit our website and Register,,chat any vendor for code  https://sunbiz.com.ng/affiliate/umarutijani
